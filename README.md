@@ -1,4 +1,4 @@
-# 2bidizhi.github.io
+# 2bdizhi.github.io
 <center>
 <span style="font-size:20px">2B铅笔最新地址</span><br />
 <br />
